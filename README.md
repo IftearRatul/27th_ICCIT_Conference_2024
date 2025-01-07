@@ -1,0 +1,1 @@
+In **27th ICCIT Conference 2024** which was held in 20-22 December, 2024 in Long Beach Hotel, Cox's Bazar, Bangladesh. Attending the conference in online and presented our work. It was a great experience to share ideas with researchers, scientist and many others.  
